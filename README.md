@@ -1,2 +1,5 @@
 # OOP
 For Milukov CFU
+My name is Van, I'm an artist. I'm a performance artist. I'm hired for people to fulfil their... fantasies. Their deep, dark fantasies. I was gonna be a movie star, with modelling and acting. After a hundred or two auditions and small parts, I decided I had enough. Then I got into escort work. The clientele requested a lot of... fetishes. So I just decided to go full master and change my entire house into a dungeon, dungeon master, with a full dungeon in my house, and its going really well.
+
+Fisting is 300 bucks. Usually the guy gets high on pop, to really get relaxed, and I have this long latex glove that goes all the way up to my armpit. Then I put on a surgical latex glove up to my wrist. Just lube it up. It's a long process to get your whole arm up there. But its an intense feeling for the other person, I think for myself too. You go to places that even though it's physical with your hand, for some reason it's also more emotional. It's more psychological too. We both reach the same place, it's really strange at the same time. And I found with a session like that it's really exhausting.
